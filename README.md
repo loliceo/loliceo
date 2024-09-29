@@ -1,4 +1,7 @@
-## Hi there 👋
+## Nigeta Gitaaa
+
+  ![kitaan](https://github.com/user-attachments/assets/be212dc7-255b-4f13-a294-0a1aacb7f178)
+
 
 <!--
 **loliceo/loliceo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
