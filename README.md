@@ -1,4 +1,4 @@
-## Nigeta Gitaaa
+## The Runaway Guitarist
 
   ![kitaan](https://github.com/user-attachments/assets/be212dc7-255b-4f13-a294-0a1aacb7f178)
 
